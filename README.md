@@ -1,6 +1,5 @@
 <div align="left"><font face="Arial">
 <img src="https://pbs.twimg.com/media/GBqvsrnWsAA9gad?format=jpg&name=large" align="left" height="350" width="350">
- <br>
 dear | 21+ | they/them
  <br> <img src="https://pixels.crd.co/assets/images/gallery13/94eae260.gif?v=29416114" align="left" height="20" width="20">i don't take this game super seriously, just here to have fun and chat! feel free to talk to me pls! i love interacting with people on here!! ^_^ !!!
  <br><img src="https://pixels.crd.co/assets/images/gallery13/031bf5c5.gif?v=29416114" align="left" height="20" width="20">i hide / dni with anyone i find weird lmao. 
